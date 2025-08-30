@@ -1,4 +1,2 @@
 - 👋 Hi, I’m @Avocadough
-- 👀 I’m interested in financial, investment, algo trading and blockchain.
-- 🌱 I’m currently learning financial, investment, algo trading, blockchain and AI.
 - 😄 Pronouns: He/Him
